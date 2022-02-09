@@ -37,3 +37,4 @@ There is no age limit to join our server
 \🌸 ᵎ⌇ Interested? Come join now!!
 https://discord.gg/ywsXwdySef
 ```
+![https://raw.githubusercontent.com/nbylaa/white-sand/main/assets/banner.png?token=GHSAT0AAAAAABPVRM4WYUOQ52LLQ46RRK6QYQDQ3CA](https://github.com/nbylaa/white-sand/blob/main/assets/banner.png)

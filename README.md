@@ -13,8 +13,7 @@
 ## ✨ ᵎ⌇ Is there an age limit?
 There is no age limit to join our server
 
-## 🌸 ᵎ⌇ Interested? Come join now!!
-https://discord.gg/ywsXwdySef
+## 🌸 ᵎ⌇ Interested? Come [join](https://discord.gg/ywsXwdySef) now!!
 
 # ☁️ ┊ Description Template
 
